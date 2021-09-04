@@ -20,3 +20,7 @@ Feature to connect available ears to those who need one.
 Have you had thoughts similar to these at times? Even flat out said similar things? Of course, you have – you’re human – all of us have these thoughts and feelings, especially when we're young. Life can be very frustrating at times. But as hard as it is, in a strange sort of way, these feelings are a good thing. Your frustrations are simply a sign that you are growing up and starting to learn to be an adult. No longer are all your choices being made for you. Now, and for the foreseeable future, you're going to be taking on more and more responsibilities and, with those, comes more pressure. This is simply the way life works. As such, listening ears are important. If you can lend someone else a listening ear, we cover that as part of this feature.
 
 Lastly, a checklist. This checklist might seem trivial but can actually do wonders. Having benefitted from this, a checklist allows us to visualise our commitments, our tasks at hand or anything, in general, that is on our mind. By having it displayed in a fashionable form, we are more aware of the things we have to do and acts to lower our stress levels. Another alternative use for this is that we provide activities that positively distract one from stress by doing simple tasks that can take one's mind off what has been bugging them.
+
+Ultimately, this acts as tool that will address a wide array of mental health issues in our community.
+
+
